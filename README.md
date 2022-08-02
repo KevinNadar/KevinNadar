@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on the **Linux** _Kernel_ & **Spyder** _IDE_
 - 🤔 I’m looking for help with `Rust`
 - 💬 Ask me about anything!
-- 📫 How to reach me: [e-mail](kevinxaviernadar@gmail.com), [telegram](https://t.me/QuinnCunxx2037), [matrix/element](https://matrix.to/#/@theforbiddenfruit:garudalinux.org)
+- 📫 How to reach me: [e-mail](kevinxaviernadar@gmail.com), [alternate email](kevin.nadar@pm.me), [telegram](https://t.me/QuinnCunxx2037), [matrix/element](https://matrix.to/#/@theforbiddenfruit:garudalinux.org)
 - 😄 Pronouns: **`KCOOL2004`** **`𝐐𝐮𝐢𝐧𝐧𝐂𝐮𝐧𝐱𝐱𝟐𝟎𝟑𝟕`** **`W A F E R S`** **`TheForbiddenFruit`**
 - ⚡ Fun fact: If everyone on earth held hands with one another, they would circle the earth multiple times!
